@@ -1,4 +1,4 @@
-### Olá, meu nome é Carlos Júnior
+### Olá, eu sou o Carlos Júnior
 
 Você também pode me encontrar:
 
